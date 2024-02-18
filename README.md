@@ -1,6 +1,6 @@
 HEY,STIMBOTO HERE 😊😊
 
-Bio
+
 👋 Hello, I'm STIM , a passionate tech enthusiast.
 
 🌱 I'm currently learning various things related to computer science.
