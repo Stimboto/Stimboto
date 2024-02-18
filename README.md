@@ -8,8 +8,7 @@ HEY, STIMBOTO HERE 🤭
 💼 CSE student.
 
 📫 How to reach me: | Email:stimboto79067@gmail.com |
-Linkdin: stimboto |         
-            n website: social.com
+Linkdin: stimboto |website: social.com
 
 Recent Activity
 🎉 
