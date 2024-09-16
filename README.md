@@ -14,9 +14,9 @@ Linkdin: stimboto |
 website: social.com
 
 Recent Activity
-🎉 
-📖 
-🚀 
+🎉 c
+📖 c++
+🚀 java
 
 Favorite Technologies:
 blockchain ,
