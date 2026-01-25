@@ -6,8 +6,4 @@
 
 📫 Lets connect : | Email:ad.stim@gmail.com |
 
-Fun Facts:
-
-🎸 I play in "ODDS".
-
-📚 Currently reading "YOU^2".
+Fun Facts : | 🎸 I play in "ODDS" . | 📚 Currently reading "YOU^2".
