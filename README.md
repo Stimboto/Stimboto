@@ -6,7 +6,7 @@
 
 📫 Lets connect :   
 
-Email:ad.stim@gmail.com  
+Email : ad.stim@gmail.com  
 
 Fun Facts :   
 
