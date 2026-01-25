@@ -8,6 +8,6 @@
 
 Fun Facts:
 
+🎸 I play in "ODDS".
 
-🎸 I play in "ODDS"😊.
 📚 Currently reading "YOU^2".
