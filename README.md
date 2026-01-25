@@ -4,21 +4,7 @@
 
 💼 CSE student.
 
-📫 How to reach me: | Email:stimboto79067@gmail.com |
-
-Linkdin: stimboto |
- 
-website: social.com
-
-Recent Activity
-🎉 c
-📖 c++
-🚀 java
-
-Favorite Technologies:
-blockchain ,
-cyber security{quantum computing} ,
-AI
+📫 Lets connect : | Email:ad.stim@gmail.com |
 
 Fun Facts:
 🎸 I play in "ODDS"😊.
