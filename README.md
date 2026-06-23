@@ -5,10 +5,6 @@
 <br/>
 <br/>
 
-# STIMBOTO
-
-### Building Real Products That Solve Real Problems
-
 <p>
 Builder • Founder • Marketplace Systems
 </p>
